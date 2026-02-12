@@ -8,6 +8,8 @@ Email: m.b.pluis@uu-meadow.nl | ORCID: 0000-0002-EARS-0001
 
 ---
 
+![](https://remosince1988.com/cdn/shop/articles/Miffy_hero_3.2_LR_520x500_491ea2e8-84b1-4a58-b763-ed59d8b4732c.jpg)
+
 ## Education
 
 **PhD in Theoretical Carrot Biochemistry**, Wageningen University, 2008
